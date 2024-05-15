@@ -1,1 +1,1 @@
-Adhoc problem from everywhere 
+Adhoc problem I have solved
